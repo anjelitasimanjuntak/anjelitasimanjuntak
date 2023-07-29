@@ -1,0 +1,4 @@
+- 👋 Hi, I’m anjelitasimanjuntak
+- 👀 I’m interested in Data analysis
+- 🌱 I’m currently learning english and data analysis
+- 💞️ I am a 7th semester student majoring in English education
